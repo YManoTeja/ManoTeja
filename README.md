@@ -408,7 +408,7 @@ Enterprise Networks
 
 🔗 **LinkedIn:** [linkedin.com/in/manoy123](https://www.linkedin.com/in/manoy123)
 
-💻 **GitHub:** [github.com/ManoTeja4858](https://github.com/ManoTeja4858)
+
 
 ---
 
